@@ -14,9 +14,7 @@ The vine crawling up a tree is like a river crawling across the Earth.
 
 ### CHAPTER II
 THE GREATEST SECRET of the greatest inventor of all time is to put a thing on the end of a stick.  
-Arm, Leg, Head, Fingers, Toes  
-Spoon, Spear, Torch, Stone, Fork, Paddle  
-Axle, Electricity, Telegram, Big Bang  
+Arm, Leg, Head, Fingers, Toes, Spoon, Spear, Torch, Stone, Fork, Paddle, Axle, Big Bang  
 
 ### CHAPTER III
 GO OUT INTO THE SUN in the Morning, especially in the Spring.  
