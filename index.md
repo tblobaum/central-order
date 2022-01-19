@@ -183,3 +183,13 @@ ENCOURAGE YOUR ENEMIES to enjoy the Sunset.
 #### THE AUTHOR’S HERITAGE
 I AM A BABYLONIAN.  
 I seek all-knowledge, immortality and total global domination.  
+
+<!-- Global site tag (gtag.js) - Google Analytics -->
+<script async src="https://www.googletagmanager.com/gtag/js?id=UA-26685221-1"></script>
+<script>
+  window.dataLayer = window.dataLayer || [];
+  function gtag(){dataLayer.push(arguments);}
+  gtag('js', new Date());
+
+  gtag('config', 'UA-26685221-1');
+</script>
