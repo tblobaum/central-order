@@ -14,7 +14,7 @@ The vine crawling up a tree is like a river crawling across the Earth.
 
 ### CHAPTER II
 THE GREATEST SECRET of the greatest inventor of all time is to put a thing on the end of a stick.  
-Arm, Leg, Head, Fingers, Toes, Spoon, Spear, Torch, Stone, Fork, Paddle, Axle, Big Bang  
+Arm, Leg, Head, Fingers, Toes, Spoon, Spear, Torch, Stone, Fork, Paddle, Axle 
 
 ### CHAPTER III
 GO OUT INTO THE SUN in the Morning, especially in the Spring.  
@@ -26,20 +26,25 @@ The rays of the Fall Evening are redshifted.
 They are moving toward you slower than at any other time.  
 Blueshifted rays stabilize your sub-atomic particles like a boat moving faster through the water.  
 This stabilization propagates upward and impacts your DNA, cells, organs, body, family, community, your nation and the entire animal kingdom.  
+The activity level of predators of all kinds is lowest during the sunrise and highest at sunset just as all the Universe follows along.  
 You could say that we life-forms are nothing but an accumulation of countless years of blueshift.  
 
 ### CHAPTER IV
-THE WEEK IS SEVEN DAYS LONG and has been since the days of Babylon. Our Babylonian ancestors made the decision for a 7 day week.  
+THE WEEK IS SEVEN DAYS LONG and has been since the days of Babylon.  
+Our Babylonian ancestors made the decision for a 7 day week.  
 The days of the week have gone in sequential order for thousands of years without missing.  
 The week is 7 days long due to a supernatural cycle identified by the Babylonians.  
-Everyone knows that life on Earth goes haywire on the Full Moon. Life also goes haywire on the New Moon, the First Quarter Moon and the Third Quarter Moon.  
+Everyone knows that life on Earth goes haywire on the Full Moon.  
+Life also goes haywire on the New Moon, the First Quarter Moon and the Third Quarter Moon.  
 Babylonians first observed the Sabbath Day to avoid bad luck on these days.  
 To observe the Sabbath properly is to do so on the quarters of the Moon.  
 In fact, the Sabbath should be observed every 6 to 9 days.  
 These days create a supernatural cycle for man.  
 Yet, woman is possessed by the Moon all the time.  
 Men should stay at home or near a religious facility on the quarters of the Moon.  
-Women need to stay home because the men have gone haywire. There is a supernatural cycle that lasts about 7 days for a man. On this day something memorable happens: up, down, left, right, forward, backward, inside-out.  
+Women need to stay home because the men have gone haywire.  
+There is a supernatural cycle that lasts about 7 days for a man.  
+On this day something memorable happens: up, down, left, right, forward, backward, inside-out.  
 This weekly cycle is like going before a judge in a courtroom.  
 One thing for certain is it will be memorable, and black and white.  
 
@@ -76,7 +81,8 @@ It is possible we inherited the universe from a different being which detailed i
 G-d is with the one with the most attention to detail.  
 In any case, the Creator is like the human.  
 Both are able to form things that did not exist before.  
-The human evolving into a great creator is like a child growing up. The Creator made the universe long ago.  
+The human evolving into a great creator is like a child growing up.  
+The Creator made the universe long ago.  
 Part of the purpose of the universe is to grow a new creator.  
 You could tell how the human and the Creator are similar if you could see them both at once.  
 
@@ -84,7 +90,8 @@ You could tell how the human and the Creator are similar if you could see them b
 TO MAKE SOMETHING into a woman is to turn it inside out and set its heart on fire.  
 The man turned the woman inside out and set her heart on fire.  
 This is what something powerful does in our universe.  
-A blackhole is the universe itself turned inside out and set on fire. Your consciousness is also the universe turned inside out and set on fire.  
+A blackhole is the universe itself turned inside out and set on fire.  
+Your consciousness is also the universe turned inside out and set on fire.  
 Men do this to each other’s cities and nations.  
 Blackshirts in the geo-center of the United States were forged with this in mind.  
 A house is also mother nature turned inside out with a hearth set on fire.  
@@ -155,6 +162,7 @@ If the deadly force takes the lives of those with good hearing then the men will
 ### CHAPTER XV
 YOUR CARDIOVASCULAY SYSTEM looks very similar to your nervous system.  
 This coincidence occurred because your heart is actually your oldest brain.  
+
 Your internal organs are female and they do what is necessary.  
 Your sensory organs are male and they lead the way.  
 Of your arms and legs, the legs are female and the arms are male.  
@@ -182,7 +190,7 @@ ENCOURAGE YOUR ENEMIES to enjoy the Sunset.
 
 #### THE AUTHOR’S HERITAGE
 I AM A BABYLONIAN.  
-I seek all-knowledge, immortality and total global domination.  
+I seek all-knowledge and immortality.  
 
 <!-- Global site tag (gtag.js) - Google Analytics -->
 <script async src="https://www.googletagmanager.com/gtag/js?id=UA-26685221-1"></script>
