@@ -59,13 +59,13 @@ Also, every 76 months a day is added to a random month somehow making 77.
 
 ### CHAPTER VI
 EVERY 7 YEARS IS KNOWN as a Sabbath Year.  
-On this year you shall sell your investments for gold.  
+On this year you shall sell your investments.  
 Once the markets have tumbled you will buy back.  
 
 ### CHAPTER VII
 EVERY 7TH SABBATH YEAR shall be known as a Jubilee Year.  
 A Jubilee Year occurs every 49 years.  
-You shall enact your plans for global domination at this time.  
+You shall enact your plans at this time.  
 
 ### CHAPTER VIII
 THE CREATOR IS LIKE the human, but more.  
@@ -162,7 +162,8 @@ If the deadly force takes the lives of those with good hearing then the men will
 ### CHAPTER XV
 YOUR CARDIOVASCULAY SYSTEM looks very similar to your nervous system.  
 This coincidence occurred because your heart is actually your oldest brain.  
-
+Every time you stick your neck out to take a bite, a sight or a hear, your brain and sensory organs move away from your heart.  
+Look at the snake, the greatest eater of them all, and he is all neck.  
 Your internal organs are female and they do what is necessary.  
 Your sensory organs are male and they lead the way.  
 Of your arms and legs, the legs are female and the arms are male.  
