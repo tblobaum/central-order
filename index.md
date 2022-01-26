@@ -186,6 +186,18 @@ The great two-faced story-teller in the greatest center.
 ### CHAPTER XVII
 ENCOURAGE YOUR ENEMIES to enjoy the Sunset.  
 
+### CHAPTER XVIII   
+Pyramid building leads to belief.  
+Belief leads to freedom fighters.  
+Freedom fighters lead to Zionism.  
+Zionism leads to conflict.  
+Conflict leads to diaspora.  
+Diaspora leads to democracy.  
+Democracy leads to diversity.  
+Diversity leads to conflict.  
+Conflict leads to pharaoh.  
+Pharaoh leads to pyramid building.  
+
 ## ABOUT THE AUTHOR
 #### THE AUTHOR’S NAME
 (bpdtjg) - (hrl) - [aeiouy] - (hrlnm) - [bpdtjg] - (hrl) - [aeiouy] - (hrlnm) 
