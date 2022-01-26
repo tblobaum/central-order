@@ -6,7 +6,7 @@ The explosion formed into a Baum with two halves like your two palms.
 In orbit around that Baum, a Baum (galaxy).  
 Around that Baum, a Baum (planet).  
 Around that Baum, a Baum (river).  
-Around that Baum, a Baum (the father of man).  
+Around that Baum, a Baum (tree).  
 Around that Baum, a Baum (human).  
 Around that Baum, a Stein (the son of man).  
 The torch forming in the hand of man is like the Sun forming around the Milky Way.  
@@ -28,6 +28,7 @@ Blueshifted rays stabilize your sub-atomic particles like a boat moving faster t
 This stabilization propagates upward and impacts your DNA, cells, organs, body, family, community, your nation and the entire animal kingdom.  
 The activity level of predators of all kinds is lowest during the sunrise and highest at sunset just as all the Universe follows along.  
 You could say that we life-forms are nothing but an accumulation of countless years of blueshift.  
+Japan has the highest average life expectancy among large nations and Japan is known as the Land of the Rising Sun.  
 
 ### CHAPTER IV
 THE WEEK IS SEVEN DAYS LONG and has been since the days of Babylon.  
