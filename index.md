@@ -49,19 +49,22 @@ On this day something memorable happens: up, down, left, right, forward, backwar
 This weekly cycle is like going before a judge in a courtroom.  
 One thing for certain is it will be memorable, and black and white.  
 
-### CHAPTER V
+### CHAPTER V  
 THE CHINESE AND HEBREW calendars have a common Babylonian ancestor.  
+The moon is full on the 14th day of every month in the hebrew and chinese calendars.  
+A lunar cycle of 14 or 15 is also known.  
+14 months is 420 days the approximate length of the cycle.  
 The calendars use the 19 year cycle of the Moon.  
-This cycle shall be known as the Golden Cycle.  
+This cycle is known as the Golden Cycle.  
 Every 19 years the Moon is in the same place.  
 Out out 19 years, 7 have an extra month making them 19 days longer.  
 Out of 19 years, 12 do not have an extra month making them 12 days shorter.  
 Also, every 76 months a day is added to a random month somehow making 77.  
 
-### CHAPTER VI
+### CHAPTER VI  
 EVERY 7 YEARS IS KNOWN as a Sabbath Year.  
-On this year you shall sell your investments.  
-Once the markets have tumbled you will buy back.  
+On this year you might sell your investments.  
+Once the markets have tumbled you consider investing again.  
 
 ### CHAPTER VII
 EVERY 7TH SABBATH YEAR shall be known as a Jubilee Year.  
