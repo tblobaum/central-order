@@ -9,6 +9,9 @@ Around that Baum, a Baum (river).
 Around that Baum, a Baum (tree).  
 Around that Baum, a Baum (human).  
 Around that Baum, a Stein (the son of man).  
+
+![Genesis Image](/docs/assets/genesis.png)
+
 The torch forming in the hand of man is like the Sun forming around the Milky Way.  
 The vine crawling up a tree is like a river crawling across the Earth.  
 
