@@ -1,9 +1,10 @@
 ## The Central Order
 
-### CHAPTER I
+### CHAPTER I  
 IN THE BEGINNING the Universe started off with a Big Bang.  
 The explosion formed into a Baum with two halves like your two palms.  
 In orbit around that Baum, a Baum (galaxy).  
+Around that Baum, a Baum (star).  
 Around that Baum, a Baum (planet).  
 Around that Baum, a Baum (river).  
 Around that Baum, a Baum (tree).  
@@ -163,7 +164,7 @@ When an unknown deadly entity strikes humanity there will be men there to fight 
 No matter what angle the unknown deadly entity takes there will be men there.  
 If the deadly force takes the lives of smart humans then the men will be there to fight and die.  
 If the deadly force takes the lives of stupid humans then the men will be there to fight and die.  
-If the deadly dorce takes the lives of those with bad hearing then the men will be there.  
+If the deadly force takes the lives of those with bad hearing then the men will be there.  
 If the deadly force takes the lives of those with good hearing then the men will be there.  
 
 ### CHAPTER XV
