@@ -52,6 +52,8 @@ There is a supernatural cycle that lasts about 7 days for a man.
 On this day something memorable happens: up, down, left, right, forward, backward, inside-out.  
 This weekly cycle is like going before a judge in a courtroom.  
 One thing for certain is it will be memorable, and black and white.  
+Deep inside the moon lives a being which, like your mind, is the Universe itself turned inside out with a heart set on fire.  
+This being interacts with life on Earth, from the right, in seemingly irrational ways.  
 
 ### CHAPTER V  
 THE CHINESE AND HEBREW calendars have a common Babylonian ancestor.  
