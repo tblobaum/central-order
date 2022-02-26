@@ -193,7 +193,7 @@ The great two-faced story-teller in the greatest center.
 ### CHAPTER XVII
 ENCOURAGE YOUR ENEMIES to enjoy the Sunset.  
 
-### CHAPTER XVIII   
+### CHAPTER XVIII  
 Pyramid building leads to belief.  
 Belief leads to freedom fighters.  
 Freedom fighters lead to Zionism.  
@@ -204,6 +204,18 @@ Democracy leads to diversity.
 Diversity leads to conflict.  
 Conflict leads to pharaoh.  
 Pharaoh leads to pyramid building.  
+
+### CHAPTER XIX
+IN THE HEBREW LANGUAGE one may turn little Ma around to make multiples (or people).  
+This word is Am, which is the most commonly used word in the bible.   
+You can also take little Ma, turn her around to make Am, and then attach to the ends of words to pluralize.  
+Through careful consideration we can discover mankind's first words.   
+Ba, Ma, Am, Baam, Maab  
+Thumb, Index, Middle, Ring, Pinky  
+Turn Ma around and put her together with Ba to make Baam.  
+Baum is the family tree.  
+Mob is one of the oldest words in the world.  
+Mob simply means the family tree is going the other direction on you.  
 
 ## ABOUT THE AUTHOR
 #### THE AUTHOR’S NAME
